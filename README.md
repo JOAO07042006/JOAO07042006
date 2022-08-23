@@ -1,0 +1,6 @@
+- 👋 oi me chamo joao vitor
+- 👀 I’m interested in ...aprender mais com o  hithub
+- 🌱 I’m currently learning ...como montar meu html
+- 💞️ I’m looking to collaborate on ...hithub
+- 📫 How to reach me ...joao.salvador@escola.pr.gov.br
+--->
